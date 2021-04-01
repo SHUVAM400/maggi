@@ -1,0 +1,1 @@
+some choped vegetables, one packet of maggi, maggi masala, some water,oil,salt,tamoto sauce
